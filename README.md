@@ -1,1 +1,1 @@
-blublulbu
+tools and equipment in ICT. 
